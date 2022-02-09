@@ -1,2 +1,4 @@
 # Versioning
 Filofolo
+LUCIE A CREE EN LOCAL
+PAS TRES TRES FUTE 
